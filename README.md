@@ -1,0 +1,1 @@
+# Street_Fighter_Seminar_Translation_Chinese
